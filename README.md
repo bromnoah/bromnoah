@@ -1,4 +1,4 @@
-# Hi, I'm Noah Brom 😊 :v:
+# Hi, I'm Noah Brom 👋
 
 A little bit about me: 
 - :man_student: masters student at the University of Arizona
